@@ -1,5 +1,4 @@
 # Maria Baklanova 
-## Data Analyst with extensive project experience
 
 ## About me...
 I'm a Data Analyst based in Singapore. 
